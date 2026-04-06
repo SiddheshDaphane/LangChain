@@ -1,0 +1,1 @@
+Learning About all AI latest technology and revising it. 
